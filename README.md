@@ -1,2 +1,2 @@
 # Licorice-Pizza
-Licorice Pizza Records
+Licorice (Liquorice) Pizza 
